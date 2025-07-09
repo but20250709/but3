@@ -10,4 +10,4 @@
 
 本页面精选欧美激情影片合集，资源分类详尽，更新迅速，满足不同口味需求。支持高清在线播放，自动适配网络环境，提供流畅无广告的观看体验，是寻找热门无码片源的理想入口。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but3 ）</span>
